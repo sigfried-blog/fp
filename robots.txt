@@ -1,0 +1,1 @@
+Sitemap: https://sigfried-blog.github.io/fp/sitemap.xml
