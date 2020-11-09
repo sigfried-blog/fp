@@ -7,7 +7,7 @@ title: Momentarily seeing the writing on the wall
 ---
 # Momentarily seeing the writing on the wall
 
-- I want to leave the country...just spent a long time writing on the **UMD iSchool Parents Slack space** about it, following after this conversation about RBG dying
+- I want to leave the country...just spent a long time writing on the **... Slack space** about it, following after this conversation about RBG dying
 - **Me** Sept 2020
     - I'm sorry to bring up politics again, but this has been feeling like the most comforting social space I have access to right now. Have you heard about RBG yet? My wife's been crying. I'm just stunned and feeling freaked out, not sure whether to be looking at plane tickets to somewhere, put the house on the market --- maybe go door to door and ask the neighbors if they know of any liberal Takoma Park militias I can join. I spent a few minutes on twitter and that just made everything worse. Sorry again....I'll just scroll up and down this page and take deep breaths while looking at cute pictures of all our kids.
 - ![:heart:](https://a.slack-edge.com/production-standard-emoji-assets/10.2/apple-small/2764-fe0f@2x.png)  2     12 replies
